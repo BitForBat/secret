@@ -9,3 +9,5 @@ It's like being in enemy territory, but I won't let them break my spirit. I'll f
 "I may be trapped, but my determination is stronger than any chains they put on me. 
 
 Remember, in the darkest of times, trust in your instincts and never stop seeking the truth.
+
+Our paths may diverge for now, but know that our bond remains unbreakable...
