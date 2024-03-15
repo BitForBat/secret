@@ -11,3 +11,5 @@ It's like being in enemy territory, but I won't let them break my spirit. I'll f
 Remember, in the darkest of times, trust in your instincts and never stop seeking the truth.
 
 Our paths may diverge for now, but know that our bond remains unbreakable...
+
+Am I Cuurseddd..??
